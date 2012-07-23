@@ -1,4 +1,4 @@
-# Favours as Currency
+# Do Yourself a Favour
 
 People often ask me for favours, and I make a point whenever I can to indulge these requests. Often they cost me very little, perhaps an introduction or dispensing some advice, so I do them. Why? I occasionally need a favours also, so why should another grant me that courtesy if it is known that I will never reciprocate? Even if one never requires a favour from another, one is sure to benefit from the good will accumulated by helping others.
 
